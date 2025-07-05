@@ -1,2 +1,0 @@
-### DESCRIPCION OF THE PAGE
-## 
